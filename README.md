@@ -2,7 +2,7 @@
             ⁺　.⠀ adam , minor! :~)⠀  ⌒₊˚
                     he   ノ⠀it .⠀infp , mlm 
        ︵  irl angel puppy , hvy adam raki and azira kinnie .ᐟ 
-        plz keep in mind i can be slow & sensitive!
+        plz keep in mind i can be slow & sensitive
 
          dc is puppiepopper .ᐟ
 
