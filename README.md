@@ -1,6 +1,6 @@
 
-            ⁺　.⠀ ᥡᥙmᥲ / 𝗍іᥣᥣ !! , im a minor⠀  ⌒₊˚
+    ⁺　.⠀ ᥡᥙmᥲ / 𝗍іᥣᥣ !! , hvy till kin idc abt 'doubles'⠀  ⌒₊˚
                     he ノ⠀it .⠀infp , mlm 
-       ︵  puppyboy !! i can be slow & sensitive .ᐟ 
+           ︵  puppyboy !! dont sexualize me ew .ᐟ 
 
          dc is ivticure. .ᐟ
